@@ -12,4 +12,5 @@
 
 ## Socials
 
-Discord: j.j.4444
+•Discord:  j.j.4444
+
