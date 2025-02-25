@@ -4,5 +4,5 @@
 
 •I use $${\color{pink}she/her}$$ pronouns
 
-•DM's open, but don't expect me to respond right away (if i take more than a week to respond, remind me)
+•DM's open, but don't expect me to respond right away (although, if i take more than a week to respond, message me again, as i could have forgot, or i might have missed your message entierly)
 
