@@ -1,3 +1,7 @@
+##About Me
+
+#Main
+
 •[Current Time](https://time.is/Birmingham,_United_States)
 
 •You can call me $${\color{lightgreen}Jayden}$$ or $${\color{lightgreen}JJ}$$
