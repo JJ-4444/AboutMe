@@ -1,6 +1,6 @@
 •[Current Time](https://time.is/Birmingham,_United_States)
 
-•You can call me Jayden or JJ
+•You can call me $${\color{lightgreen}Jayden}$$ or $${\color{lightgreen}JJ}$$
 
 •I use $${\color{pink}she/her}$$ pronouns
 
