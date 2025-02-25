@@ -2,7 +2,7 @@
 
 ## Main
 
-•[Current Time](https://time.is/Birmingham,_United_States)
+•[Current Time](https://time.is/UTC-6)
 
 •You can call me $${\color{lightgreen}Jayden}$$ or $${\color{lightgreen}JJ}$$
 
