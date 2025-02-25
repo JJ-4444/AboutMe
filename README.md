@@ -2,7 +2,7 @@
 
 •You can call me Jayden or JJ
 
-•I use she/her pronouns
+•I use $${\color{pink}she/her}$$ pronouns
 
 •DM's open, but don't expect me to respond right away (if i take more than a week to respond, remind me)
 
