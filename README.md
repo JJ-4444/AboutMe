@@ -1,4 +1,4 @@
-•[Current Time]([https://pages.github.com/](https://time.is/Birmingham,_United_States))
+•[Current Time](https://time.is/Birmingham,_United_States)
 
 •You can call me Jayden or JJ
 
