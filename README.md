@@ -4,7 +4,7 @@
 
 •[Current Time](https://time.is/UTC-6)
 
-•You can call me $${\color{lightgreen}Jayden}$$ or $${\color{lightgreen}JJ}$$
+•You can call me $${\color{lightgreen}Jayden}$$, $${\color{lightgreen}Jay}$$, or $${\color{lightgreen}JJ}$$.
 
 •I use $${\color{pink}she/her}$$ pronouns
 
